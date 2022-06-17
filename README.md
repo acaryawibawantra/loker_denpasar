@@ -1,1 +1,0 @@
-# loker_denpasar
